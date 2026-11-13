@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on tree modelling.
 - 📫 How to reach me: daveverkaiks@hotmail.com
 - 😄 Pronouns: He/him/they/them
-- ⚡ Fun fact: I have 4 cats.
+- ⚡ Fun fact: I have 3 cats, 2 chihuahuas and a lot of shrimps.
 
 <!---
 Wosdor/Wosdor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
